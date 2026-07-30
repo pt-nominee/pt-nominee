@@ -4,3 +4,4 @@
 # Send your nominations at our atabook: https://pt-nominee.atabook.org/
 
 ## After nominination ends! The votes will start in our upcoming strawpage.
+# Hello! Since everyones nominating every pony for prettiest pony or other categories we will now accept only at first 10 people for voting! (No more first 5 selected people)
