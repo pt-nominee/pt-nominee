@@ -1,7 +1,20 @@
 # Pony Town Nominee (opened at July, 30 as of Thursday)
-# Send your nominations now! Only first 5 people will be selected.
-# There's no time! Nominate the person for the first category: Most Prettiest Pony (Deadline for nomination: July 31 to August 1, Voting deadline: August 3-5)
-# Send your nominations at our atabook: https://pt-nominee.atabook.org/
+## Send your nominations now! Only first 10 people will be selected.
+### Send your nominations at our atabook: https://pt-nominee.atabook.org/
 
-## After nominination ends! The votes will start in our upcoming strawpage.
-# Hello! Since everyones nominating every pony for prettiest pony or other categories we will now accept only at first 10 people for voting! (No more first 5 selected people)
+**After nominination ends! The votes will start in our upcoming strawpage.**
+
+# OG WINNER: (Will only be decided by us.)
+
+**Most Prettiest Pony:**
+
+**Most Well-Known/Popular Player:**
+
+**Most Afk-Warrior/Player:**
+
+**Most Stunning Github:**
+
+**Most Kindest Player:**
+
+# Categories that are now closed: Most Prettiest Pony (first 10 people now selected)
+## Categories that are open: Most Well-known, Afk-warrior, Stunning Github, and Kindest player
