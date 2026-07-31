@@ -1,3 +1,10 @@
+<p align="center">
+  <img
+    src="https://komarev.com/ghpvc/?username=pt-nominee&color=ff0000&style=plastic&label=Participants"
+    width="195"
+  />
+</p>
+
 # Pony Town Nominee (opened at July, 30 as of Thursday)
 ## Send your nominations now! Only first 10 people will be selected.
 ### Send your nominations at our atabook: https://pt-nominee.atabook.org/
