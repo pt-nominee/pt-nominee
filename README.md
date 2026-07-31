@@ -9,7 +9,7 @@
 ## Send your nominations now! Only first 10 people will be selected.
 ### Send your nominations at our atabook: https://pt-nominee.atabook.org/
 
-**After nominination ends! The votes will start in our upcoming strawpage.**
+### For more information check our new strawpage and for upcoming voting election!: https://ponytownnominee.straw.page
 
 # OG WINNER: (Will only be decided by us.)
 
