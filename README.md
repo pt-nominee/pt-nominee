@@ -11,6 +11,8 @@
 
 ### For more information check our new strawpage and for upcoming voting election!: https://ponytownnominee.straw.page
 
+**if anyones problematic go to our strawpage.**
+
 # OG WINNER: (Will only be decided by us.)
 
 **Top/Most Prettiest Pony:**
