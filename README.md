@@ -6,19 +6,21 @@
 
 # OG WINNER: (Will only be decided by us.)
 
-**Most Prettiest Pony:**
+**Top/Most Prettiest Pony:**
 
-**Most Well-Known/Popular Player:**
+**Top/Most Well-Known/Popular Player:**
 
-**Most Afk-Warrior/Player:**
+**Top/Most Afk-Warrior/Player:**
 
-**Most Stunning Github:**
+**Top/Most Stunning Github:**
 
-**Most Kindest Player:**
+**Top/Most Kindest Player:**
+
+**Top/Most C+H-er (Mostly cuddling with everypony):**
 
 **Other categories coming soon, do NOT suggest/recommend.**
 
 # Categories that are now closed: Most Prettiest Pony (first 10 people now selected)
-## Categories that are open: Most Well-known (7), Afk-warrior (3), Stunning Github (0), and Kindest player (2)
+## Categories that are open: Most Well-known (7), Afk-warrior (3), Stunning Github (0), Kindest player (2), and C+H-er (0)
 
 # Award Nominee Deadline: August 8th.
