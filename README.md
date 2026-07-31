@@ -20,6 +20,8 @@
 
 **Other categories coming soon, do NOT suggest/recommend.**
 
+### Reminder: only one person per category is only winning for their votes. (Nominations are counted as votes)
+
 # Categories that are now closed: Most Prettiest Pony (first 10 people now selected)
 ## Categories that are open: Most Well-known (7), Afk-warrior (3), Stunning Github (0), Kindest player (2), and C+H-er (0)
 
