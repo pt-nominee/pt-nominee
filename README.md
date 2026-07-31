@@ -17,4 +17,4 @@
 **Most Kindest Player:**
 
 # Categories that are now closed: Most Prettiest Pony (first 10 people now selected)
-## Categories that are open: Most Well-known, Afk-warrior, Stunning Github, and Kindest player
+## Categories that are open: Most Well-known (7), Afk-warrior (1), Stunning Github (0), and Kindest player (1)
