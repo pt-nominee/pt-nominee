@@ -16,5 +16,9 @@
 
 **Most Kindest Player:**
 
+**Other categories coming soon, do NOT suggest/recommend.**
+
 # Categories that are now closed: Most Prettiest Pony (first 10 people now selected)
 ## Categories that are open: Most Well-known (7), Afk-warrior (1), Stunning Github (0), and Kindest player (1)
+
+# Award Nominee Deadline: August 8th.
