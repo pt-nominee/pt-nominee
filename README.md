@@ -27,8 +27,6 @@
 
 **Top/Most C+H-er (Mostly cuddling with everypony):**
 
-**Other categories coming soon, do NOT suggest/recommend.**
-
 ### Reminder: only one person per category is only winning for their votes. (Nominations are counted as votes)
 
 # Categories that are now closed: Most Prettiest Pony, Well-known, Afk-Warrior and Stunning Github (first 10 people now selected)
