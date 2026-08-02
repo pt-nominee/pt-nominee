@@ -31,7 +31,7 @@
 
 ### Reminder: only one person per category is only winning for their votes. (Nominations are counted as votes)
 
-# Categories that are now closed: Most Prettiest Pony, Well-known (first 10 people now selected)
-## Categories that are open: Afk-warrior (9), Stunning Github (9), Kindest player (7), and C+H-er (2)
+# Categories that are now closed: Most Prettiest Pony, Well-known, Afk-Warrior and Stunning Github (first 10 people now selected)
+## Categories that are open: Kindest player (8), and C+H-er (3)
 
 # Award Nominee Deadline: August 8th.
