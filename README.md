@@ -9,7 +9,7 @@
 ## Send your nominations now! Only first 10 people will be selected.
 ### Send your nominations at our atabook: https://pt-nominee.atabook.org/
 
-## VOTINGS ARE OPEN! (Most Prettiest Pony) DO NOT VOTE YOURSELF.: https://ponytownnominee.straw.page
+## VOTINGS ARE OPEN! (Most Prettiest Pony and Well-Known) DO NOT VOTE YOURSELF.: https://ponytownnominee.straw.page
 
 **if anyones problematic go to our strawpage.**
 
