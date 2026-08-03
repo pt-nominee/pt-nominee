@@ -6,8 +6,8 @@
 </p>
 
 # Pony Town Nominee (opened at July, 30 as of Thursday)
-## Send your nominations now! Only first 10 people will be selected.
-### Send your nominations at our atabook: https://pt-nominee.atabook.org/
+
+## Nominations are now closed! You can now vote people that were selected from the category!
 
 ## VOTINGS ARE OPEN! (Most Prettiest Pony and Well-Known) DO NOT VOTE YOURSELF.: https://ponytownnominee.straw.page
 
@@ -29,7 +29,6 @@
 
 ### Reminder: only one person per category is only winning for their votes. (Nominations are counted as votes)
 
-# Categories that are now closed: Most Prettiest Pony, Well-known, Afk-Warrior and Stunning Github (first 10 people now selected)
-## Categories that are open: Kindest player (9), and C+H-er (3)
+# Categories that are now closed: Most Prettiest Pony, Well-known, Afk-Warrior and Stunning Github, Kindest player, C+H-er (first 10 people now selected)
 
 # Award Nominee Deadline: August 8th.
